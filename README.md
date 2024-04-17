@@ -1,0 +1,2 @@
+# nachalo
+nachalo vjego puti

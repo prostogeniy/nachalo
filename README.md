@@ -1,2 +1,2 @@
 # nachalo
-nachalo vjego puti
+nachalo moego puti
